@@ -1,9 +1,6 @@
-注：信息分析4期结业作业
+注：yina的信息分析4期结业作业
 
 * 最终呈现的PDF链接：https://pan.baidu.com/s/1_uSXhlhD-yXhYFukErVx_w 提取码：24m8
-* 亲子游地图（上海）https://mubu.com/doc/iDy2Sf3kb
-* 《冲绳旅游攻略》 https://shimo.im/docs/RHJ2TPbjTuQ1voXb/ 
-* 《冲绳旅游参考资料》 https://shimo.im/docs/T3JlXfvVT5ozGfmS/ 
 
 主要内容：
 
